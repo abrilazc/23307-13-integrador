@@ -1,4 +1,4 @@
 Abril Azcarate Vega
 Sonia Elizabeth Sánchez Martinez
-Giovanni Talarico
+Giovanni Talarico Cedeño
 Escalada Lisandro
