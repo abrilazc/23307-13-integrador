@@ -1,6 +1,6 @@
 Abril Azcarate Vega
 Sonia Elizabeth Sánchez Martinez
 Giovanni Talarico Cedeño
-Escalada Lisandro
+Lisandro Escalada
 Esteban Martin
 Thomas Yampa
